@@ -1,0 +1,2 @@
+# Punyaku
+ini tidak tau
